@@ -1,0 +1,1 @@
+- Hi, I’m @TechBond64, I wanna have a great experience in GitHub, learning and sharing, so... thats all right?
